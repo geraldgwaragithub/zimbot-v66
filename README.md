@@ -23,7 +23,7 @@ NoHi<a href="https://youtu.be/KNu-gr2h7bo"><img src="https://img.shields.io/badg
 
 > A Fully PRECIOUS COOL BOT BY DRIPS MEMES <br>
 > 
-## DONT FORGET TO GIVE A STAR🌟 AND FORK
+## DONT FORGET hiTO GIVE A STAR🌟 AND FORK
 
 
 
